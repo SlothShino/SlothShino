@@ -1,4 +1,4 @@
-### Hey, Im Oğuzhan Sezer! 👋
+### A Lesson Without Pain Is Meaningless. That’s Because No One Can Gain Without Sacrificing Something. But By Enduring That Pain And Overcoming It, He Shall Obtain A Powerful, Unmatched Heart… A Fullmetal Heart.   -Edward Elric
  
 <!--
 **SlothShino/SlothShino** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
